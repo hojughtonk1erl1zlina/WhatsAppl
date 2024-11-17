@@ -1,1 +1,11 @@
-# WhatsAppl
+# WhatsApp料
+
+需要WhatsApp料吗？网址k02.cc提供最新最全的WhatsApp料，让您随时随地了解WhatsApp的最新动态和资讯。
+
+WhatsApp是一款全球流行的即时通讯应用程序，它不仅可以发送文字消息、图片和视频，还可以进行语音通话和视频通话。WhatsApp料可以帮助您了解WhatsApp的最新功能和更新，让您在使用WhatsApp时更加方便和快捷。
+
+通过WhatsApp料，您可以了解到WhatsApp的最新版本更新内容、安全提示、使用技巧等等，让您在使用WhatsApp时更加安全和便捷。此外，WhatsApp料还会不定期推送一些有趣的WhatsApp资讯和故事，让您的WhatsApp生活更加丰富多彩。
+
+无论您是WhatsApp的新用户还是老用户，都可以通过WhatsApp料获取到有用的信息和资讯，让您更好地享受WhatsApp带来的便利和乐趣。
+
+不要再犹豫了，赶快访问k02.cc，获取最新最全的WhatsApp料吧！让我们一起来探索WhatsApp的精彩世界。[github](https://github.com)
